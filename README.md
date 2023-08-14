@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Kimberly!/h1>
+<h1 align="center">Hi 👋, I'm Kimberly!</h1>
 <h3 align="center">Current High School Student who likes Joe Biden</h3>
 
 ## About Me
