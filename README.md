@@ -6,4 +6,5 @@ I'm Kimberly Nicole Vito (Kim), and I like to code, make aesthetics, and get ins
 Thank you for reading my profile. I hope you like it. 
 
 ## Links 
-(https://www.facebook.com/groups/124774720872895/) 
+St. Henry's Church
+https://www.facebook.com/groups/124774720872895/
